@@ -1,0 +1,1 @@
+Lesku Design Project is a project to help Lesku to reach their customer via its social media.
